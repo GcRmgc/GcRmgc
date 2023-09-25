@@ -1,5 +1,5 @@
 - Witaj na GcRmgc
-- VIP
+- VIPp
 - sVIP
 - Sponsor
 - Elita
